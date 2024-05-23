@@ -3,11 +3,11 @@
 # 
 
 # 📞・İLETİŞİM
-💙・**Discord:** ArviS#0011
+💙・**Discord:** arviis.
 
 🔗・**Destek Sunucusu:** [Tıkla](https://discord.gg/3AfAFE5qYg)
 
-💜・**Instagram:** [Tıkla](https://www.instagram.com/arvis_here/)
+💜・**Instagram:** [Tıkla](https://www.instagram.com/al.kann0/)
 #
 
 # 📷・GÖRSELLER
